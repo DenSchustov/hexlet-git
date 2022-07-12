@@ -1,1 +1,1 @@
-Hello, Denis!
+No code No pain
